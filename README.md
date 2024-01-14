@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @MamadRezaSusyDev
-- 👀 I’m interested in Unity and I'm currently learning it...
+- 👀 I hate Unity and I also live it at the same time
